@@ -1,1 +1,1 @@
-One Reddit user said: "Kill yourself"
+One Reddit user said: "Kill yourself" GAGAGAGAGA
